@@ -2,4 +2,4 @@
 - instagram: @laraacardoszo
 - 16 years
 - estudante 
-![](https://tenor.com/blKGO.gif)
+![](https://tenor.com/bVH3U.gif)
